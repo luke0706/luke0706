@@ -1,2 +1,1 @@
-##KOKYUN, LEE(LUKE LEE) --@Developer
-
+##KOKYUN, LEE(LUKE LEE) --@Luke0706
